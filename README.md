@@ -130,5 +130,5 @@ Stoeber, J., & Otto, K. (2006). Positive conceptions of perfectionism: Approache
 
 ## **Contact**
 For questions or collaborations, reach out to me at Lekanolawale477@gmail.com or connect with me on [LinkedIn](https://www.linkedin.com/in/olawale-goodluck-691114255/).
-## Discussion
+
 
